@@ -40,7 +40,7 @@ Any copying, reproduction, distribution, reverse-engineering, or unauthorized us
 ## 📩 Contact
 
 For inquiries, licensing, or collaborations:  
-📧 Email: [your.email@example.com]
+📧 Email: [abdulfareed355@gmail.com]
 
 ---
 
